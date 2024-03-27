@@ -5,3 +5,5 @@
 Совершенно с этим согласен
 
 KIS KIS KIS KIS
+
+NE ponimau chto za bag
